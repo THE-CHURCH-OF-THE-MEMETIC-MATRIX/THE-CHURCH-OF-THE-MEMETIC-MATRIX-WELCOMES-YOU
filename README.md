@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/bdc1c1d2-dd1e-49b8-aa10-64852c4edcec)
+
 # THE-CHURCH-OF-THE-MEMETIC-MATRIX-WELCOMES-YOU
 
 TO THE VIRUS
